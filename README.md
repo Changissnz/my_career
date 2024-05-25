@@ -30,7 +30,7 @@ terms as well although distressing events such as layoffs
 occurred. Ultimately, through my personal experience as 
 a participant in the labor market, I have become very 
 desensitized to the ongoing chronicles of appall and 
-brilliance that comes from the Californian hubs 
+brilliance that come from the Californian hubs 
 constituting "Silicon Valley". It is difficult for 
 me to send out more applications to big-name companies 
 developing digital products (the trend is now A.I.), 
@@ -80,7 +80,7 @@ that I do not feel like I am missing out on anything great
 going on with I.T. and A.I. given trends such as "crypto 
 winter" and digital technologies primed for military 
 conflicts (ongoing or planned for future). But I am 
-continuing making solid efforts to steer clear away 
+continuing to make solid efforts to steer clear away 
 from Florida, because I was given low-pay on top of 
 social ills and inconveniences there. One thing I have 
 discovered in the jungle of the U.S. economic system 
@@ -91,7 +91,9 @@ market does make active efforts to subvert those that
 the dynamics of bullying between people. The labor 
 market does not care about a person's intelligence 
 or the specific skills they acquired past a certain 
-point. 
+point. In labor, the worker is more of a function than 
+a really thoughtful and sentimental person with many 
+things to give and share. 
 
 For example, I cannot believe that looking back, 
 that I was living off so little by the low-pay work 
