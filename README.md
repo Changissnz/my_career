@@ -56,7 +56,7 @@ tales of information technology substantially improving
 conditions overall carries too much commercial zeal on the 
 one hand, and too much collectivist utopian rumination on 
 the other hand, to be more credible than the awe it 
-triggers on those under naivette. A lot of modern digital 
+triggers in those under naivette. A lot of modern digital 
 technology is distributed by limited liability companies, 
 and that really speaks a lot for the U.S. approach to data 
 privacy in comparison to its European Union counterparts 
@@ -82,7 +82,42 @@ winter" and digital technologies primed for military
 conflicts (ongoing or planned for future). But I am 
 continuing making solid efforts to steer clear away 
 from Florida, because I was given low-pay on top of 
-social ills and inconveniences there.
+social ills and inconveniences there. One thing I have 
+discovered in the jungle of the U.S. economic system 
+with its many unnecessary regulations, usually against 
+those from disadvantaged backgrounds, is that the labor 
+market does make active efforts to subvert those that 
+"seem" vulnerable enough to be picked on, similar to 
+the dynamics of bullying between people. The labor 
+market does not care about a person's intelligence 
+or the specific skills they acquired past a certain 
+point. 
+
+For example, I cannot believe that looking back, 
+that I was living off so little by the low-pay work 
+positions I took up during and after graduating from 
+college. I became practically glued to the meaningless
+and trivial jobs that the South Florida suburban sprawl 
+had to offer. Why would I devote any more than one year 
+of my life to higher education to work any of those jobs? 
+I would not have needed even a high-school diploma. 
+The reason is simple to understand. I could not seem 
+to fetch one of those white-collar jobs working in 
+digital technology that was so advertised as being 
+the future. Now, I see why. The I.T. industry likes to 
+appear credible by acting immaculate and ethical 
+(all the while encouraging so-called security companies 
+to engage in information warfare scenarios). There 
+have been security concerns announced about the 
+industry, and ongoing conflicts in the Eastern 
+hemisphere add more stress and complication to the 
+job search in the digital industry. 
+
+I have also tuned in less to the press, especially 
+when it comes to economics. The economists on major 
+news stations do not really have honest ideas to share. 
+If they do have honest ideas, then the ideas might be 
+of no use to the specific rigors of typical workers. 
 
 
 
