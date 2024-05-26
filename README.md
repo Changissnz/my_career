@@ -153,5 +153,52 @@ can be put into question from time to time,
 especially if there are political or financial 
 incentives involved. 
 
+# Why Not Florida For I.T.?
 
+If I were to ever go into information technology 
+as a businessperson, Florida would be one of the 
+last destinations. I became very disenfranchised 
+with my prospects as a Florida citizen before 
+the Republican Party pushed for the state to 
+become a stronghold in the bipolar national 
+political machine (circa 2016). I was struggling 
+in undergraduate courses to major in chemistry. 
+I never majored in chemistry after failing organic 
+chemistry. Back in Florida, I became a sort of 
+sitting duck flunkie student loser, alone with 
+my own thoughts but not really since I was 
+still financially dependent. After my internship 
+at Blackberry Cylance in summer of 2019 where I 
+programmed an extension for a data analysis engine, 
+I became very dry out of luck as a prospective 
+software engineer. I did not land interviews. I read 
+daily articles about the COVID pandemic's cultural 
+effects on the workplaces of Modernia. The parts 
+of my hometown that were not occupied by wealthy 
+retirees were still stuck in their ways of 
+drug use (pharmaceutical pill abuse) and other 
+typical vices associated with blue-collar 
+malfeasance. Instead of obtaining a job as another 
+"tech worker", I took up work that required 
+measly education and barely any skill. Perhaps 
+if I had went to law school, I could have worked 
+for organizations such as Morgan and Morgan or 
+Southern Poverty Law Center. I would have 
+probably wielded more influence in South Florida
+if I had graduated as a law student.
 
+Florida has a culture problem that became more 
+evident after the governor's spat with Disney 
+(part of or the cause of so-called culture 
+wars). Florida has too many retirees, odd fixations,
+tourism, and swing-state politics to make for a good 
+spot for I.T. business. 
+
+Besides, with I.T. business, I am sure that fiscal 
+problems have enabled people (or should I say, people 
+have resorted to) to delve into the more ethically 
+questionable aspects of I.T. business, such as 
+extortion, blackmail, identity theft, defamation 
+on the civil side. On the more violent side, there 
+is information warfare, a precursor or complementary 
+set of principles alongside other forms of war.
