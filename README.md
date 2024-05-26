@@ -121,5 +121,25 @@ news stations do not really have honest ideas to share.
 If they do have honest ideas, then the ideas might be 
 of no use to the specific rigors of typical workers. 
 
+# I.T., Security, and a Host of Problems
+
+I have especially felt the draining and negative 
+influence of malicious use of information that may 
+or may not be entirely fabricated (or engineered, 
+whatever word suits the speaker better). It does 
+not even have to be personal. A.I.-web enhanced 
+advertising (targeted programming) is the big 
+commercial model. Besides from that, when I 
+consume too much media sometimes, I get a feeling
+of sensory/cognitive overload. 
+
+The broad nature of automating or streamlining 
+memory-based tasks or memory storage is why 
+emerging information technologies are becoming 
+another department or renovated departments in 
+other industries that traditionally 
+do not deal in or have integrated digital systems. 
+
+
 
 
