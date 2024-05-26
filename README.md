@@ -202,3 +202,26 @@ extortion, blackmail, identity theft, defamation
 on the civil side. On the more violent side, there 
 is information warfare, a precursor or complementary 
 set of principles alongside other forms of war.
+
+Information technology as an industry of workers 
+appears very attractive to demographics that have 
+a higher-than-average literacy. But obviously, during
+some recent periods in stock market history, there 
+have been events that have skewed the demands for 
+labor in this economic sector towards equilibria that 
+are not impartial in selection. For example, during 
+this time period in the U.S. (since approximately 2020), 
+many parts of the I.T. industry have reorganized 
+themselves to accomodate for demand related to the 
+conflicts involving Israel and Ukraine. 
+
+The sector of information technology carries 
+with it an air of elitism due to the typically 
+bureaucratic and begrudging path towards netting
+a job working in it. There are certainly some priorities
+deemed more important than others with regards to 
+security, project planning, monetary compensation, 
+and marketing. Stiff competition and other market 
+issues such as supply-chain disruption have given 
+me the backseat when it comes to being a cog in 
+the information technology machine complex. 
