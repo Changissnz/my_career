@@ -139,7 +139,19 @@ emerging information technologies are becoming
 another department or renovated departments in 
 other industries that traditionally 
 do not deal in or have integrated digital systems. 
-
+There is also a lot of potential for abuse of 
+information, obviously. Institutions such 
+as police, defense industry, tabloids, and 
+monopolists are a few noteworthy players. 
+Information as a good can be used to plan out 
+or announce malice from one party to another. 
+The presentation of valuable information carries 
+a lot of weight, at least as much weight as 
+whatever truth behind the information. And the 
+roles and persons designated these responsibilities
+can be put into question from time to time, 
+especially if there are political or financial 
+incentives involved. 
 
 
 
