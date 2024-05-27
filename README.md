@@ -203,6 +203,18 @@ on the civil side. On the more violent side, there
 is information warfare, a precursor or complementary 
 set of principles alongside other forms of war.
 
+There is a large population in the state of 
+Florida, but from a commercial information 
+aspect, it would be better to operate in 
+another state to serve Florida residents 
+I.T. products than operate those I.T. products
+in the state of Florida. Crowding and suburban 
+sprawl is a problem in Florida, and the state
+does not have as much investiture in past or 
+present public infrastructure. 
+
+# The So-Called Information Age
+
 Information technology as an industry of workers 
 appears very attractive to demographics that have 
 a higher-than-average literacy. But obviously, during
@@ -225,3 +237,22 @@ and marketing. Stiff competition and other market
 issues such as supply-chain disruption have given 
 me the backseat when it comes to being a cog in 
 the information technology machine complex. 
+
+There is something very awful about the nature 
+of competition when some variables go downhill, 
+metaphorically speaking. For example, some things 
+do not get fully revealed, per se, until there is 
+loss that is not able to be compensated. Or the 
+path towards competition is very restrictive and 
+already somewhat deterministic, so much that the 
+first competition is being able to get to the 
+real competition. What makes things worse is that 
+some competitions end early, and the winners 
+claim lifelong legitimacy and supremacy.
+
+I expect that since there are unscrupulous 
+dealers of all sorts of goods, including 
+information, that the business of information
+technology is susceptible to questionable 
+tendencies. I stay tuned to these trends, 
+and I do not mind. 
