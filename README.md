@@ -347,6 +347,34 @@ rules and regulations regarding
 utility and work follow rigid 
 hierarchical processes. 
 
+One aspect about corporatism that 
+really sticks out to me is the 
+financial welfare of those that do 
+not labor in the corporatist structure.
+A few centuries back, the British 
+with their East India Company was able 
+to establish and build a dominance 
+in South Asia. The structure of this 
+company, according to the incomplete 
+facts that I have read, can be 
+considered corporatist due to the 
+wealth and power distribution regarding
+the company. The East India Company made 
+a lot of money, but many of Britain's 
+subjects (those of Indian or British origin)
+were not financially better off due to 
+the successes of the company. Bear in 
+mind that during the time period of 
+the East India Company, mass changes in 
+labor occurred in the form of 
+"Industrial Revolutions". In corporatist
+structures, those with influential 
+positions in the structures are usually 
+very well compensated in financial terms.
+Those outside of the structures, however, 
+are either not compensated whatsoever or 
+compensated very little.
+
 
 
 
