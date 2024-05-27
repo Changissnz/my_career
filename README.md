@@ -280,6 +280,46 @@ organizations related to the adoption,
 production, and distribution of "high-tech" 
 products. 
 
+Back when I was still in college, I 
+anticipated my road ahead after 
+graduation would not be met with 
+applause and embrace, with me comfortably 
+handed a mathematics-related job in 
+the services sector of the economy. 
+And I was right because I knew with 
+some aspects of my life, I would be 
+given sub-par. Leadership dynamics 
+in organizations continue to change 
+or lean towards preferences, so 
+people in my position do continue to 
+look for entry into the higher-paid 
+end of the labor market. There are 
+bound to be recurring issues in 
+conversation about topics that cannot 
+be so easily changed. For example, I 
+would be a fool to discard what I 
+studied in school or to not continue 
+to pursue knowledge and skill regarding
+academic topics of interest. Even if 
+I continue to net jobs that require 
+very little college-level mathematics, 
+there is always a little time that 
+can be put aside for hobbies involving
+intellectual interests.
+
+I was thinking about the subtle but 
+clearly existent classism in the 
+labor market, especially when it 
+comes to the supply-chain in the 
+technology sector. Back in school, 
+even before higher education, students
+such as I were introduced to ideas 
+against some manifestations of labor 
+in the capital economy. Dissatisfaction 
+is a feeling I have felt from time to 
+time, but ultimately, better work, 
+better development, and a better life 
+is a personal waiting game. 
 
 
 
