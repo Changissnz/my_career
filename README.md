@@ -256,3 +256,20 @@ information, that the business of information
 technology is susceptible to questionable 
 tendencies. I stay tuned to these trends, 
 and I do not mind. 
+
+# I.T.,A.I.,and Corporatism
+
+There are strong ties between corporatist 
+labor forces and the I.T./A.I. high-tech 
+industry, in which the term "high-tech" 
+takes to mean the most advanced segment 
+of a technology goods production machine.
+Without silicon, without the water that 
+you need for yourself, A.I. would still 
+be like the most magical and powerful 
+algorithm invented by Ava Lovelace, 
+pretty cool and advanced ideas for the 
+time but way ahead for the time. 
+
+
+
