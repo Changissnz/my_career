@@ -321,6 +321,31 @@ time, but ultimately, better work,
 better development, and a better life 
 is a personal waiting game. 
 
+The term "corporatism" is, easily 
+enough, a very fitting term for 
+some organizational structures that 
+require advanced and regulated 
+pipelines of labor and production. 
+For example, a university student 
+researcher in artificial intelligence
+may not think that they are a 
+corporatist because they are bossing
+around no one or enforcing any 
+policy. But the work that they 
+do gets translated into computer 
+programming that is software 
+embedded into computing devices. 
+And those computing devices started 
+off as raw materials. So the student
+researcher is actually a sort of 
+gem in the crown that is the 
+production machine for artificial 
+intelligence embedded into hardware.
+And the production machine can be 
+considered corporatist because the 
+rules and regulations regarding
+utility and work follow rigid 
+hierarchical processes. 
 
 
 
