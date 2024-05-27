@@ -330,7 +330,7 @@ For example, a university student
 researcher in artificial intelligence
 may not think that they are a 
 corporatist because they are bossing
-around no one or enforcing any 
+around no one and not enforcing any 
 policy. But the work that they 
 do gets translated into computer 
 programming that is software 
