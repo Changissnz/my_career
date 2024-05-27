@@ -275,7 +275,7 @@ There are probably issues down the road
 depending on the demands of the labor 
 market coupled with the demands from 
 labor market participants, with regards 
-to the rankings and progressions of 
+to the rankings and progressions in 
 organizations related to the adoption, 
 production, and distribution of "high-tech" 
 products. 
