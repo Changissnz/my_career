@@ -271,5 +271,17 @@ algorithm invented by Ava Lovelace,
 pretty cool and advanced ideas for the 
 time but way ahead for the time. 
 
+There are probably issues down the road 
+depending on the demands of the labor 
+market coupled with the demands from 
+labor market participants, with regards 
+to the rankings and progressions of 
+organizations related to the adoption, 
+production, and distribution of "high-tech" 
+products. 
+
+
+
+
 
 
