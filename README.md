@@ -375,6 +375,89 @@ Those outside of the structures, however,
 are either not compensated whatsoever or 
 compensated very little.
 
+There was mention of the terms "Global South"
+and "Global North" in the press about half a
+year ago. Isn't that fantastic? I wonder how 
+some people, here in the U.S., draw the lines
+for the "Global North" and "Global South".
+Maybe the lines are also drawn in U.S. territory,
+which would mean that the U.S. practices
+discrimination through controlling socio-economic 
+factors, primarily occupation and income. There 
+are so many great occupations in this world! It is 
+too bad some people cannot  afford to, or are 
+restricted in their movements and behaviors. The
+term "Global South", from a corporatist context, 
+fits the description of a region that produces 
+initial components to more advanced technology, 
+or one that deals a lot with physical natural 
+resources, and whose labor force generally does
+not require as much education. So in the 
+hierarchy, there is the "Global South" under
+the "Global North" in the cycle of  
+labor-poduction-consumption. The "Global South"
+is more populated and is not as potent, for 
+lack of a better term, as the "Global North" 
+because it labors and exists in the basic 
+stages of the corporatist production system. 
+The "Global North" takes advantage of the 
+labor done by the "Global South" by using their
+products for consumption or further development,
+thereby saving time and resources for itself. 
 
+The state of Florida is quite peculiar when one
+considers it in the context of a corporatist 
+structure. Florida does not have a developed 
+electronics industry. Florida does not have 
+as much legacy in the arts and sciences as the
+state of California. Florida is not as 
+conservative as Texas, overall. But overall, 
+Florida is unremarkable. Florida is not really 
+a follower or a leader, but a consumer. 
+A big consumer because it has a big population. 
+Many retirees in Florida are quite affluent, 
+and although I do not know the statistics, 
+much of their wealth must have been derived
+from corporate matters. But those of working
+age in Florida, even those that have credentials
+past high school, tend to find it very difficult
+to accumulate wealth. And it goes without saying, 
+if wealth cannot be accumulated, then the benefit
+of no state tax does not mean a thing. The state 
+of Florida must have been planned and continue to 
+be planned for a lot of recreational activity. 
+And this is a problem for those that want to 
+accumulate wealth or at least welfare by working
+harder or innovating smarter. Corporatism seems 
+to keep Florida Affluentaadis sailing on their 
+cruise ships, and buries talent like treasure 
+chests of gold.A terrible culture to utilize 
+thought and effort. So some Florida residents 
+are at the peaks of corporatist structures (typically old retirees), 
+others are excluded from corporatist structures, and still
+others are kept at the bottom of corporatist structures.
+Diversity of status is not the problem; the issue is 
+that Florida has an under-developed high-tech industry
+and it rather buys products from the Valley (that is
+Silicon Valley). 
+
+My quality of life and human relations in Florida 
+were not that great after I graduated from high 
+school. There are definitely lackluster experiences 
+in my living in the state of Florida since about 
+adolescence. I already foreseen that I will really go nowhere 
+if I continue to try to live in Florida. Bogged down, 
+a marginal person, a person that does not need to be 
+that smart or informed. Mr. Bottom-of-the-Corporatist-Structure.
+And besides, when I think about Florida politics, I think 
+about some of Niccolo Machiavelli's thinking that he wrote down 
+in a book, calling it philosophy. Florida politics 
+has a red side and a blue side, and is a sort of 
+pay-to-play machine. Red politics in Florida is, 
+from my perspective, split between the Italianos
+& Hispanias and the Germanics. And blue politics in
+Florida is comprised of hooligans and control freaks 
+that use different styles but are ultimately of the
+same caste. 
 
 
