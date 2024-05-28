@@ -394,7 +394,7 @@ or one that deals a lot with physical natural
 resources, and whose labor force generally does
 not require as much education. So in the 
 hierarchy, there is the "Global South" under
-the "Global North" in the cycle of  
+the "Global North" in the cycle of 
 labor-poduction-consumption. The "Global South"
 is more populated and is not as potent, for 
 lack of a better term, as the "Global North" 
