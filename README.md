@@ -460,4 +460,29 @@ Florida is comprised of hooligans and control freaks
 that use different styles but are ultimately of the
 same caste. 
 
-
+I generally do not like to delve into discussions about 
+ethnicity, politics, and labor for many reasons, but 
+the big reason is that many mouthfuls will be said 
+although not much will be remembered let alone able to 
+be constructively acted upon. The U.S. economic system 
+is a very robust network, but not everyone has the same
+level of convenience in choosing what they want to do 
+for a living in accomodation to their self-identity.
+What is quite obvious is that dysfunctional or disenfranchised
+communities (perhaps based on ethnic identity) may find 
+themselves in very unsettling, unproductive, and 
+irrational situations depending on herd mentality and 
+group leadership. Dysfunctional or disenfranchised 
+communities may be too helpless to help themselves, and 
+the poor souls that are touched by these dysfunctional 
+or disenfranchised communities have difficult times 
+moving on and solving pertinent problems that fit the 
+worker's talents. The thought and initiative behind 
+independence become like crusader legends. It seems 
+that when leadership attempts to solve some issues 
+in corporatistic arrangements or to solve issues 
+using corporatism, issues such as identity,expression, 
+and representation become constant topics for 
+discussions and movements in response to deficits 
+posed by certain occupational and financial 
+attributes.
