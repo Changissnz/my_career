@@ -486,3 +486,98 @@ and representation become constant topics for
 discussions and movements in response to deficits 
 posed by certain occupational and financial 
 attributes.
+
+# More on Corporatism
+
+Many people probably wonder what corporatism 
+really is, because the definition and real-life 
+exemplification require human perspectives to 
+accomodate themselves to the different norms 
+and sub-structures. 
+
+Corporatism can be casual, but in a corporatist
+structure, all persons and organizations bear some 
+degree of connection to responsibilities regarding 
+work restrictions, compensation, and long-term welfare.
+For example, a farmer in a remote village produces 
+dairy products dairy products, but needs crop products 
+from another farmer. A contract is established between 
+them that requires some monthly amount to be transported
+according to a schedule consensually agreed on. Through
+corporatism, the first farmer could produce their dairy 
+and the other farmer has a long-term customer. 
+Corporatism, in this case, ensures stability and 
+cooperation.
+
+There have been so-called "free" market failures 
+due to the lack of corporatism. 
+- country A wants to produce its own technology T
+  but it did not think to promote social networks
+  for its citizens to organize. So country A is stuck
+  failing to produce technology T.
+- An organization fails to improve its performance
+  in hunting and farming, but it knows the solution.
+  The organization fails to adopt the solution, and
+  continues declining due to low performance.
+- Several organizations compete with each other over
+  the same scope of capital and influence. Instead of
+  merging into conglomerates, they all fade into
+  obsolescence from over-competition.
+- Organization A produces goods G, but its security
+  is so bad and it is weak on the legal ground; the
+  organization let nation-state actors steal its
+  intellectual property and goes bankrupt when the
+  nation-state sold it to the competitors of A.
+- Organizations operating in region R experience a violent
+  takeover by invading militaries. Organizations fall under
+  authority and possession of the invaders.
+
+In each of these cases, the weaknesses of organizations
+and networks that were supposed to uphold corporatist 
+principles failed to maintain meaningful and positive 
+bindings to each other. Issues such as sub-optimal 
+levels of improvements and losses in competition could
+have been minimalized if the structure had a sort of 
+corporatist backup apparatus followed by a corporatist 
+agenda.
+
+Corporatist structures enable the rigidity necessary to 
+minimalize disruptive practices, especially the ones that 
+have weaponized subjectivity against organizational 
+integrity. Corporatist structures can also be used to 
+deter, subjugate, and entrap perceived threats into 
+sub-prime conditions (i.e. working conditions, economic 
+sanctions). Corporatist structures encourage objective 
+measures on performance, in which these measures have 
+reliable and available solutions for improvement. 
+Corporatist structures tend to have two big objectives, 
+and they are 
+- scaling and growing
+- enforcing compliance with terms of labor.
+For the second objective, corporatist measures aim for
+clarity in work processes, worker integration, and
+maintaining order against potential sources of
+disruption to the organizational body and/or leadership.
+
+For corporatism to really work in a form more pure than 
+not, there is the requirement of pro-corporatist agendas. 
+Pro-corporatist actions through agenda may appear or be 
+perceived as non-corporatist, anti-corporatist, but its 
+actions that may or may not be rationally linked to the 
+betterment of corporatism actually is a pivotal force 
+behind the betterment. 
+
+Corporatism has an umbrella of transparency, oversight 
+in other words, that operates as a solution to filter out 
+flukes and sub-functionals from legitimate entry, or any 
+possible entry from a security perspective for that 
+matter. Perceived threats are usually dealt with through 
+socio-economic arrangements (think of personalized planned 
+economies). Corporatism is an efficient and effective 
+concept to manifest because it can aid in controlling 
+narratives, a dominant role in the recognition and 
+expression of problem and solution, and streamlining 
+processes (removing duplicity, ascribing authority to 
+singular sources as to avoid and preferably negate 
+contradiction). Corporatist failings are a big cause of 
+civil or violent conflicts. 
