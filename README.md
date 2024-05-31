@@ -559,7 +559,6 @@ For the second objective, corporatist measures aim for
 clarity in work processes, worker integration, and
 maintaining order against potential sources of
 disruption to the organizational body and/or leadership.
-
 For corporatism to really work in a form more pure than 
 not, there is the requirement of pro-corporatist agendas. 
 Pro-corporatist actions through agenda may appear or be 
