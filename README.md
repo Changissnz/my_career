@@ -500,7 +500,7 @@ structure, all persons and organizations bear some
 degree of connection to responsibilities regarding 
 work restrictions, compensation, and long-term welfare.
 For example, a farmer in a remote village produces 
-dairy products dairy products, but needs crop products 
+dairy products, but needs crop products 
 from another farmer. A contract is established between 
 them that requires some monthly amount to be transported
 according to a schedule consensually agreed on. Through
