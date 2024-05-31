@@ -554,6 +554,7 @@ Corporatist structures tend to have two big objectives,
 and they are 
 - scaling and growing
 - enforcing compliance with terms of labor.
+  
 For the second objective, corporatist measures aim for
 clarity in work processes, worker integration, and
 maintaining order against potential sources of
