@@ -632,3 +632,30 @@ For example, complex institutions that have the capability for actions
 restricted by contenders and subjects can throw weight behind their devices 
 and processes geared against others, as in the greater kinetic force of a 
 mace against a sword. 
+
+There is a great span of surface available for attack (the attack surface)
+on complex corporatist structures, a direct result of the widely available 
+number of available attack vectors against the many access points (that may 
+be more vulnerable than not) of these structures. This generalization goes 
+back to the concept of "more means more maintenance". Opponents of specific 
+corporatist structures, opponents that may support opposing or alternative 
+corporatist structures, use certain concepts to materialize their malice 
+against their wanted targets. For instance, these opponents promote opportunity 
+for themselves by planting and elevating their chosen conduits into their 
+target corporatist structure, and these conduits transmit output back to their 
+allies (the opponents) as forms of profit out from the exploited corporatist 
+structure. These opponents aim to deteriorate the corporatist structure in 
+ways that output products or building blocks for the advances of competing 
+corporatist structures. And these competitors, if are advanced persistent 
+threats, continue their use of anti-corporatist tactics against their comparable 
+contenders. One long-term strategy that uses various tactics barely detectable 
+if used by resourceful and skilled opponents is building processes such as 
+feedback loops that act as continual and draining extractions from the sources 
+for their wanted output values. In zero-sum dynamics, these processes pose 
+the broad issue of the disruption of balance. Another strategy that can be 
+used together with the previous for greater results is exemplifying the 
+concept of weaponization of subjectivity through contentions regarding the 
+leadership and oversight of the corporatist structures. Topics such as 
+the "culture", the "ethic", and the "style and scope of influence" are put 
+into question with those that declare/d themselves the rightful
+ones in charge. 
