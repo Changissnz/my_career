@@ -652,10 +652,10 @@ contenders. One long-term strategy that uses various tactics barely detectable
 if used by resourceful and skilled opponents is building processes such as 
 feedback loops that act as continual and draining extractions from the sources 
 for their wanted output values. In zero-sum dynamics, these processes pose 
-the broad issue of the disruption of balance. Another strategy that can be 
-used together with the previous for greater results is exemplifying the 
-concept of weaponization of subjectivity through contentions regarding the 
-leadership and oversight of the corporatist structures. Topics such as 
-the "culture", the "ethic", and the "style and scope of influence" are put 
-into question with those that declare/d themselves the rightful
+the broad issue of the disruption and possible cancellation of balance. Another 
+strategy that can be used together with the previous for greater results is 
+exemplifying the concept of weaponization of subjectivity through contentions 
+regarding the leadership and oversight of the corporatist structures. Topics 
+such as the "culture", the "ethic", and the "style and scope of influence" 
+are put into question with those that declare/d themselves the rightful
 ones in charge. 
