@@ -587,7 +587,7 @@ history in which the term "corporatism" carries alarmist
 interpretation. There are usually outcries against some 
 forms of "conservatism", but corporatism does develop over
 time. More complex structures tend to use 2nd-mover advantage 
-through maximally using its resources to play the game of 
+through maximally using their resources to play the game of 
 catch-up to incumbents of smaller scale, and then to leverage 
 weight against the incumbents and weight for its own products.
 The rigidity of corporatist arrangements can dissatisfy many
