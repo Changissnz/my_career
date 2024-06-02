@@ -581,3 +581,21 @@ processes (removing duplicity, ascribing authority to
 singular sources as to avoid and preferably negate 
 contradiction). Corporatist failings are a big cause of 
 civil or violent conflicts. 
+
+There seems to be intermittent periods in modern U.S. 
+history in which the term "corporatism" carries alarmist
+interpretation. There are usually outcries against some 
+forms of "conservatism", but corporatism does develop over
+time. More complex structures tend to use 2nd-mover advantage 
+through maximally using its resources to play the game of 
+catch-up to incumbents of smaller scale, and then to leverage 
+weight against the incumbents and weight for its own products.
+The rigidity of corporatist arrangements can dissatisfy many
+who are not primed or positioned to benefit from their inclusion 
+in such arrangements. Corporatist apparatuses can be used 
+to a horrid accuracy from those privileged for the responsibility
+against perceived threats, and this usage may constitute an 
+abuse or unfair advantage according to the arguments of some. 
+
+
+
