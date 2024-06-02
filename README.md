@@ -608,4 +608,17 @@ P does not have the need to produce T because it already has a
 rich and diverse economy. But the hierarchs' decision results in 
 forms of labor considered forced.
 
-
+Nation-states in the past have competed against each other in 
+games that use corporatist principles and corporatist arrangements.
+Consider a nation state B that housed research and development 
+that somehow became spearheaded for an agenda of committing a 
+foreign invasion. Nation state B has about 20 years of advances 
+over nation state A, reflected in its superior corporatist structure
+over that of its intended invasion target. Nation state B goes ahead 
+with invasion into A, but a quarter of the way through the invasion, 
+A renovates its corporatist structure for efficiency and comparative
+dynamics with B. Nation states A and B operated through different 
+manifestations of labor before and at the beginning of the invasion.
+They also have very different ideologies. But corporatism became adopted 
+at a thorough level of success for the 2nd state A, and in a form that
+compares with the structures of B. 
