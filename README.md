@@ -649,7 +649,7 @@ ways that output products or building blocks for the advances of competing
 corporatist structures. And these competitors, if are advanced persistent 
 threats, continue their use of anti-corporatist tactics against their comparable 
 contenders. One long-term strategy that uses various tactics barely detectable 
-if used by resourceful and skilled opponents is building processes such as 
+if operated by resourceful and skilled opponents is building processes such as 
 feedback loops that act as continual and draining extractions from the sources 
 for their wanted output values. In zero-sum dynamics, these processes pose 
 the broad issue of the disruption and possible cancellation of balance. Another 
