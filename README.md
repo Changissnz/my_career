@@ -622,3 +622,13 @@ manifestations of labor before and at the beginning of the invasion.
 They also have very different ideologies. But corporatism became adopted 
 at a thorough level of success for the 2nd state A, and in a form that
 compares with the structures of B. 
+
+Corporatist arrangements deemed effective usually promote a measurable 
+degree of co-corporatism between the members of the corporatist structure, 
+that is cooperation for corporatism. These co-corporatist bindings 
+are very difficult to diffuse/disintegrate when the arrangements are 
+in their phases of momentum with regards to development and chain-of-command. 
+For example, complex institutions that have the capability for actions 
+restricted by contenders and subjects can throw weight behind their devices 
+and processes geared against others, as in the greater kinetic force of a 
+mace against a sword. 
