@@ -604,7 +604,7 @@ absolutely no need for a population P to nurture and develop the
 skill necessary to produce product X. But the hierarchs of the 
 corporatist structure decide that population P best get to working 
 so that product X is reliably produced T years from now. Population 
-P does not have the need to produce T because it already has a 
+P does not have the need to produce X because it already has a 
 rich and diverse economy. But the hierarchs' decision results in 
 forms of labor considered forced.
 
