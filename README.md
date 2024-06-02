@@ -597,5 +597,15 @@ to a horrid accuracy from those privileged for the responsibility
 against perceived threats, and this usage may constitute an 
 abuse or unfair advantage according to the arguments of some. 
 
+Another aspect for complaint against "corporatist" arrangements 
+is the potential for the hierarchs of corporatist structures to
+skew the perception of supply-and-demand. For instance, there is 
+absolutely no need for a population P to nurture and develop the 
+skill necessary to produce product X. But the hierarchs of the 
+corporatist structure decide that population P best get to working 
+so that product X is reliably produced T years from now. Population 
+P does not have the need to produce T because it already has a 
+rich and diverse economy. But the hierarchs' decision results in 
+forms of labor considered forced.
 
 
