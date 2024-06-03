@@ -739,7 +739,7 @@ of that arrangement. The support system, consisting of welfare, prosperity, and
 security varies in implementations through the different strata of corporatist 
 structures. In corporatist environments that foster competition through the 
 design of disproportionate benefits and taxes for those of differing ranks 
-(such as leaning towards the head or leaning towards the body), so that there
+(such as leaning towards the head or leaning towards the body), there
 is motive to achieve higher ranks. In accountable and transparent (relatively) 
 corporatist structures, achieving higher ranks is tied to managing greater risks
 (or at least, risks of greater scale), although those of lower ranks typically 
