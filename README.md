@@ -754,10 +754,3 @@ change against perceived threats of the body and meanwhile upholds the head
 as a force for the conservative good. The tendency is correlated with expansion 
 of checks-and-balance dynamics as policies of the corporatist structure. These 
 dynamics usually follow the pattern of greater restriction on lower ranks.
-
-
-
-
-
-
-Corporatist structures
