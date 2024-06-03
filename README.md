@@ -737,7 +737,7 @@ disintegration and splintering become noticeable problems. Non-corporatists may
 ironically benefit more from a corporatist arrangment than the co-corporatists 
 of that arrangement. The support system, consisting of welfare, prosperity, and 
 security varies in implementations through the different strata of corporatist 
-structures. In corporatist environemnts that foster competition through the 
+structures. In corporatist environments that foster competition through the 
 design of disproportionate benefits and taxes for those of differing ranks 
 (such as leaning towards the head or leaning towards the body), so that there
 is motive to achieve higher ranks. In accountable and transparent (relatively) 
