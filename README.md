@@ -669,9 +669,9 @@ competitor to them. The effect of brain drain is highly sought after by
 competing corporatist structures playing the game of catch-up to more 
 advanced and robust competitors, games where they cannot leverage their 
 own weight and function against the superior competitors. For low-level 
-products (primarily natural resources), then there aims to "seize" or 
-"capture" these material natural resources instead of the human capital 
-in the case of high-level products as well as aims to conserve the 
+products (primarily natural resources), then there are aims to "seize" or 
+"capture" these material natural resources, instead of the human capital 
+in the case of high-level products, as well as aims to conserve the 
 work process of the corporatist structure that handles these low-level 
 products.
 
