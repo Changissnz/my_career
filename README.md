@@ -659,3 +659,105 @@ regarding the leadership and oversight of the corporatist structures. Topics
 such as the "culture", the "ethic", and the "style and scope of influence" 
 are put into question with those that declare/d themselves the rightful
 ones in charge. 
+
+Competing corpooratist structures act towards objectives that fit general 
+guidelines. If the contender requires high-level products that requires 
+advanced education and experimentation, and their competitor has these 
+requirements and additionally holds resources back from the contender, 
+then the contender pursues a strategy that causes brain drain from their 
+competitor to them. The effect of brain drain is highly sought after by 
+competing corporatist structures playing the game of catch-up to more 
+advanced and robust competitors, games where they cannot leverage their 
+own weight and function against the superior competitors. For low-level 
+products (primarily natural resources), then there aims to "seize" or 
+"capture" these material natural resources instead of the human capital 
+in the case of high-level products as well as aims to conserve the 
+work process of the corporatist structure that handles these low-level 
+products.
+
+Underlying bases of corporatist structures can conduct detachments of 
+authority from the upper portions, but detachment does tend to be quite
+difficult in well-regulated corporatist arrangements. When detachments 
+occur, there is a follow-up of severance of connection (hierachical,
+co-dependencies) that involves the underlying bases going through
+re-organization for new leadership and dynamics of activity. Instances
+of corporatist detachments fall under the category of co-corporatist 
+errors. The result includes failures due to the failed corporatist 
+arrangement. 
+
+Corporatists (human agents in corporatist structures) do make errors 
+on scheduled or predictable bases despite the seemingly gleaming 
+images of their respective corporatist institutions. A corporatist's 
+actions may be, without question of their true motive, anti-competitive
+to another corporatist belonging to the same structure. So there exists
+plenty of instances of bellicose activity revolving around corporatist 
+matters in corporatist organizations. The concept of checks-and-balances
+is heavily utilized in organizations on a general basis, and corporatist 
+structures are no exception. Corporatist structures that streamline and 
+account for their processes tend to mechanize and proliferate 
+checks-and-balances onto all of their layers,co-layers, as well as relations 
+between the layers. The product is a complex that does not escape and skew 
+regulatory processes (the checks-and-balances). Mechanisms that constitute 
+self-solving solutions for internal errors are valued for integrating 
+a corporatist structure with needs for high maintenance. 
+
+Communal systems can become curious cases in trends of corporatization.
+These systems of typically non-corporatist method of living and working 
+do oftentimes turn corporatist as a reactionary choice, and in these occasions,
+the opponents are more organized and/or have more resources along with their 
+functionaries. These opponents are much more corporatized and primed to achieve 
+and maintain dominance over the communal systems. But the communal system, 
+as a 2nd-mover, built its own corporatist design with attention only to the 
+metrics that correlate to more gains than losses against their opponents. 
+The communal system before their offensive-defensive procedures, from a 
+perspective, was a corporatist structure but one that was not as tightly 
+bound, carefully optimized, and designed for peak-of-performance as their 
+competitors. The 2nd-mover advantage in cases of a "corporatist" structure more 
+willing to fragment and implode than to accomodate and leverage change can 
+turn out not to be an advantage over multiple rounds of playing catch-up,
+especially if the catch-up is not followed up with a decisive and terminating 
+victory against the competitors. To label materializations of economic 
+thought as "corporatist" can become quite vain and forever-flawed attempts 
+when there is consideration of the morphological history of two structures 
+in comparison of their corporatist implementations. This is due to the 
+sociology, relativity, and purposes that are plenty enough for the potential 
+to splinter in interpretation and action. 
+
+One area of ambiguity that corporatist structures face is recognizing and 
+empowering certain members that technically belong to the structures. Inclusion
+is not an equivalent term for "incorporation", a process that involves integrating
+an outside body into a corporatist structure. And the integration assigns the 
+roles, ranks, and recognitions of those incorporated. Inclusion of a body into a 
+corporatist structure requires positive recognition of the body and, equally as 
+important, granting privilege to the body in decision-making proceedings. For 
+instance, pro-corporatists may be excluded from the rewards and gravity of the 
+specific corporatist structures that they willfully support. So in times where 
+proposed solutions involve withdrawing support for these corporatist structures, 
+disintegration and splintering become noticeable problems. Non-corporatists may 
+ironically benefit more from a corporatist arrangment than the co-corporatists 
+of that arrangement. The support system, consisting of welfare, prosperity, and 
+security varies in implementations through the different strata of corporatist 
+structures. In corporatist environemnts that foster competition through the 
+design of disproportionate benefits and taxes for those of differing ranks 
+(such as leaning towards the head or leaning towards the body), so that there
+is motive to achieve higher ranks. In accountable and transparent (relatively) 
+corporatist structures, achieving higher ranks is tied to managing greater risks
+(or at least, risks of greater scale), although those of lower ranks typically 
+experience higher risk on average due to the combinative factor of their 
+responsibilities and abundance of rank. The asymmetric nature between rank 
+and reward carries with it the fundamental issue of coupling rank with reward 
+as a balancing/corrective formula. Corporatist structures may administer change
+(typically termed "reform") that originates from either its body or the head. 
+One big tendency for corporatist structures is to administer change that 
+originates from the head. And in these cases, the head encourages negative 
+change against perceived threats of the body and meanwhile upholds the head 
+as a force for the conservative good. The tendency is correlated with expansion 
+of checks-and-balance dynamics as policies of the corporatist structure. These 
+dynamics usually follow the pattern of greater restriction on lower ranks.
+
+
+
+
+
+
+Corporatist structures
